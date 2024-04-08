@@ -1,2 +1,0 @@
-# PX7
-TEAM PROJECT
